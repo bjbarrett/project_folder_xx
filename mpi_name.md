@@ -1,1 +1,1 @@
-# Max Planck Institute 4 Animal Behaviour
+# Max Planck Institute of Animal Behavior
